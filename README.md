@@ -7,7 +7,3 @@ https://www.museothyssen.org/en/collection/artists/schwitters-kurt/merzbild-1a-p
 “This writing that you find so obscure is a quintessential extraction of language and painting and gesture, with all the inevitable clarity of the old inarticulation. Here is the savage economy of hieroglyphics.”
 <br>
 https://books.google.com/books?id=ij85AAAAIAAJ&lpg=PA56&ots=xsSKP8_eqR&dq=savage%20economy%20of%20hieroglyphics&pg=PA56#v=onepage&q=savage%20economy%20of%20hieroglyphics&f=false
-
-“Henry David Thoreau offered a model of hiking...This model included introspection; keeping quiet; and ‘microvisioning’—the direction of the gaze towards a single point and delving into its details, thus aestheticising the objects of gaze, rendering them sublime and wild, and turning them into awe-inspiring ‘nature.’” 
-<br>
-https://scholar.harvard.edu/files/schwarz/files/schwarz_2013_what_nature_should_sound_like_website_version.pdf
