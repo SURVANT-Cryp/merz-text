@@ -8,6 +8,6 @@ https://www.museothyssen.org/en/collection/artists/schwitters-kurt/merzbild-1a-p
 <br>
 https://books.google.com/books?id=ij85AAAAIAAJ&lpg=PA56&ots=xsSKP8_eqR&dq=savage%20economy%20of%20hieroglyphics&pg=PA56#v=onepage&q=savage%20economy%20of%20hieroglyphics&f=false<br>
 <br>
-<i>merz.finne</i> was inspired by artist Kurt Schwitters’ <i>Merzbau</i> (Merz Building), a mythical three-dimensional assemblage of everyday objects and debris, and James Joyce’s experiments with spontaneous prose in <i>Finnegan’s Wake</i>. It is an assemblage of text fragments from my “digital dérives” on the Internet and the Darknet.<br>
+<i>merz.finne</i> was inspired by artist Kurt Schwitters’ <i>Merzbau</i> (Merz Building), a mythical three-dimensional assemblage of everyday objects and debris; and James Joyce’s experiments with spontaneous prose in <i>Finnegan’s Wake</i>. It is an assemblage of text fragments from my “digital dérives” on the Internet and the Darknet.<br>
 <br>
 LINK: https://drive.google.com/drive/u/1/folders/1aoIhBERJxZNz9TGY-6qSHpdDo9ccQM16
